@@ -5,6 +5,7 @@ I'm an author, artist and a gamer.
 6teen.
 C+H Always welcome, love seeing people around.
 Please don't come to me for sexsual interactions if we're not close.
+Oh and i am a Medkit & Coil kin irl. I also have Slingshot in me in a little dose. Seems pretty opposite, i know: but trust me about that. If you wonder, you can ask me about it.
 
 <!--
 **TRA1T0R/TRA1T0R** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
