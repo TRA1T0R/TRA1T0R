@@ -1,5 +1,11 @@
 ts wip btw , , ,, 
 
+Offtab 99% but will always respond back to whispers(might respond late.)
+I'm an author, artist and a gamer.
+6teen.
+C+H Always welcome, love seeing people around.
+Please don't come to me for sexsual interactions if we're not close.
+
 <!--
 **TRA1T0R/TRA1T0R** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
